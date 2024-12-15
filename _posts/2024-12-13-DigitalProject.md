@@ -11,7 +11,7 @@ Hello! My name is Ellie Ames and for my digital project I will be exploring wome
 
 ### Ann Lee (1736-1784)
 
-![Heavenly Sphere]https://raw.githubusercontent.com/amese1/Blog-Assignment/refs/heads/master/assets/css/Andrews-emblemheavenlysphere-1854.jpg
+![Heavenly Sphere](https://raw.githubusercontent.com/amese1/Blog-Assignment/refs/heads/master/assets/css/Andrews-emblemheavenlysphere-1854.jpg)
 
 
 Ann Lee is the founder of the Shakers, who emerged from a Christian group called the Quakers in 1747. Within her early life, she was married and had had four children who all died early on. This led to her having negative views on sex and caused her to be celibate. Ann Lee later had a vision, “in which it was revealed to her that sexuality had been the causes of the expulsion from Eden and that only be giving up sex could human beings be reconciled to God” (Young p. 405). This reinforced her ideas on celibacy and became a teaching of the Shaker religion. She started to gain a following and had an emphasis on overturning norms and wanted a community of men and women together rather than a community separated by gender roles. Her ideas received some backlash, causing her to be persecuted and for her ideas to be resisted by many. 
