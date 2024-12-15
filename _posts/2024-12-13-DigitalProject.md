@@ -25,6 +25,8 @@ Personally, I think that historically and presently women are inherently used to
 
 ### Catherine of Siena (1347-1380)
 
+![CATHERINE OF SIENA](https://raw.githubusercontent.com/amese1/Blog-Assignment/refs/heads/master/assets/css/Detail_of_Vanni-SaintCatherineSiena-.jpg)
+
 ```“For a woman with substantial literary legacy, Catherine’s own voice and sense of self have largely been overshadowed by hagiographical sources that have shaped her successful cult (Muessig p. )```
 
 Catherine of Siena was a writer and mystic of the 14th century. She was the last born to a family of 25 siblings with her twin sister who died young. She had started her Catholic religious practices at a young age and joined a female lay movement who were known for dedication to good works in 1369. She gained a following and had a desire for religious reform. She began to follow ascetic practices such as fasting and physical mortifications. She had mystical visions, causing her to be more committed to religious practice. Her followers called her “Mamma” and she gained authority as a talented writer. She identified her own physical sufferings to be like Christ. She was one of the first women to be deemed a doctor of the Catholic Church in 1970.
