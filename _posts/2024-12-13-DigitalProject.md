@@ -38,6 +38,11 @@ Marie D’Oigines was a 13th century beguine. From a young age she was attracted
 #### Devoted and Divided 
 Marie D’Oignies story gives insight on the medieval period, in which her religious experience was shaped by the world around her. She claimed to not want to have submission to any men, but I think that her submission to God was quite far. Her being drawn to ascetism and selfless devotion put her outside of traditional female roles of the time. It appears her mystic visions influenced her life and even the people around her and, in that sense, gave her somewhat of religious authority. Through her fasting, physical self-harm, and the clothes she wore, she was able to mediate religion for herself and for others because she could not otherwise due to the male-dominated institution. This represents how intertwined her religion was to physical manifestations to portray it. Her devotion to Christ is very clear and was from an early age all the way up to her death, regardless of her status and position in society and religious institutions. Her lifestyle can be seen as rebellion because those around her almost made a mockery of her and she thus created her own way of mediating religion.
 
+### Conclusion
+
+By looking at each of these women’s early lives, what brought them close to their religion, and the legacies they left, it can be concluded that they all were devoted to their faith in a very powerful way. The selfless devotion of these women correlates to gendered life experiences such as the pains of motherhood, subordination of women, and abilities to make decisions about one’s body. The marginalization of their faith expression each woman endured caused them to have to express their faith physically. Whether that be through using one’s personal experiences to create theology such as Ann Lee, tangible objects like Catherine of Siena, or enduring physical pain and fasting quite like Marie D’Oignies. Although each woman went about their faith differently, all these stories show devotion and lifestyle practices to the extreme, during a time where women were not equally represented in religion. I hope you enjoyed reading about these stories and understood how my analysis developed these points. Thank you! ![image](https://github.com/user-attachments/assets/a6c20394-abcd-4390-a769-3664c0a967f7)
+
+
 
 
 
