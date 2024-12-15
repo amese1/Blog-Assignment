@@ -37,6 +37,8 @@ Catherine of Siena established herself as a prominent religious figure during a 
 
 ### Marie D'Oignies (find this) 
 
+![MARIEDOIGNIES](https://raw.githubusercontent.com/amese1/Blog-Assignment/refs/heads/master/assets/css/Leboucq-RecueildArrasMarie-1560s.jpg)
+
 ```The great love and delight in which she embraced Christ’s cross and tormented her own flesh” (Spearing p. 92)```
 
 Marie D’Oigines was a 13th century beguine. From a young age she was attracted to asceticism and devotion to Catholicism. This was her own choice, as her parents did not push this on her. She was in an arranged marriage at the age of 14. She would punish herself with a rope around her waist and felt inclined to physically hurt herself to feel closer to Christ. She wore a rope under her clothes and would choose prayer rather than sleep. She was not respected in the public and received lots of back-lash for her ascetic ways. She would receive mystical visions and overwhelming feelings from Christ, that would sometimes transfer to the people around her. She renounced all her own possessions and desires. She was celibate, rarely ate, and cut off her own flesh. Her life was made up of spiritual experience and ascetic practices.
