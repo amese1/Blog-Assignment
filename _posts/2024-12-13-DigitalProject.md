@@ -7,7 +7,7 @@ title: Devoted and Divided - Women’s Selfless Devotion to Religion
 Hello! My name is Ellie Ames and for my digital project I will be exploring women’s selfless devotion to religion. I chose Ann Lee, Marie D’Oignies, and Ann Lee to analyze as they are all from different periods of time and are all influential Christian women. Each story is unique but explores how women’s selfless devotion to religion is deeply intertwined with gender and manifests itself through physical expressions of faith. I hope you learn something new and enjoy reading!
 
 
-```Partly because of their reduced access to education and ecclesial authority, women have understood their own bodies as testimony to and connection with the experience of Jesus (Klassen and Lofton p. 53)```
+```Partly because of their reduced access to education and ecclesial authority, women have understood their own bodies as testimony to and connection with the experience of Jesus. (Klassen and Lofton p. 53)```
 
 ### Ann Lee (1736-1784)
 
@@ -16,7 +16,7 @@ Hello! My name is Ellie Ames and for my digital project I will be exploring wome
 
 Ann Lee is the founder of the Shakers, who emerged from a Christian group called the Quakers in 1747. Within her early life, she was married and had had four children who all died early on. This led to her having negative views on sex and caused her to be celibate. Ann Lee later had a vision, “in which it was revealed to her that sexuality had been the causes of the expulsion from Eden and that only be giving up sex could human beings be reconciled to God” (Young p. 405). This reinforced her ideas on celibacy and became a teaching of the Shaker religion. She started to gain a following and had an emphasis on overturning norms and wanted a community of men and women together rather than a community separated by gender roles. Her ideas received some backlash, causing her to be persecuted and for her ideas to be resisted by many. 
 
-```Ann Lee understood her womanhood as an essential part of her ministry as did her followers (Young p. 406)```
+```Ann Lee understood her womanhood as an essential part of her ministry as did her followers. (Young p. 406)```
 
 Ann Lee had put utmost importance on motherhood and viewed God as mother rather than the typical male depiction of God. She was also called “Mother Ann” and valued shared roles and communal living practices. Ann Lee was illiterate, and therefore used her own personal experiences to create theology and mediate religion. Her being seen as “Mother Ann” plays into the idea that she is a reincarnation of Christ physically. Her followers viewed her as a spiritual mother. Her actions following visions she recieved show how she mediates religion in a material way.
 
@@ -27,7 +27,7 @@ Personally, I think that historically and presently women are inherently used to
 
 ![CATHERINE OF SIENA](https://raw.githubusercontent.com/amese1/Blog-Assignment/refs/heads/master/assets/css/Detail_of_Vanni-SaintCatherineSiena-.jpg)
 
-```“For a woman with substantial literary legacy, Catherine’s own voice and sense of self have largely been overshadowed by hagiographical sources that have shaped her successful cult (Muessig p.1)```
+```For a woman with substantial literary legacy, Catherine’s own voice and sense of self have largely been overshadowed by hagiographical sources that have shaped her successful cult. (Muessig p.1)```
 
 Catherine of Siena was a writer and mystic of the 14th century. She was the last born to a family of 25 siblings with her twin sister who died young. She had started her Catholic religious practices at a young age and joined a female lay movement who were known for dedication to good works in 1369. She gained a following and had a desire for religious reform. She began to follow ascetic practices such as fasting and physical mortifications. She had mystical visions, causing her to be more committed to religious practice. Her followers called her “Mamma” and she gained authority as a talented writer. She identified her own physical sufferings to be like Christ. She was one of the first women to be deemed a doctor of the Catholic Church in 1970.
 
@@ -39,7 +39,7 @@ Catherine of Siena established herself as a prominent religious figure during a 
 
 ![MARIEDOIGNIES](https://raw.githubusercontent.com/amese1/Blog-Assignment/refs/heads/master/assets/css/Leboucq-RecueildArrasMarie-1560s.jpg)
 
-```The great love and delight in which she embraced Christ’s cross and tormented her own flesh” (Spearing p. 92)```
+```The great love and delight in which she embraced Christ’s cross and tormented her own flesh. (Spearing p. 92)```
 
 Marie D’Oigines was a 13th century beguine. From a young age she was attracted to asceticism and devotion to Catholicism. This was her own choice, as her parents did not push this on her. She was in an arranged marriage at the age of 14. She would punish herself with a rope around her waist and felt inclined to physically hurt herself to feel closer to Christ. She wore a rope under her clothes and would choose prayer rather than sleep. She was not respected in the public and received lots of back-lash for her ascetic ways. She would receive mystical visions and overwhelming feelings from Christ, that would sometimes transfer to the people around her. She renounced all her own possessions and desires. She was celibate, rarely ate, and cut off her own flesh. Her life was made up of spiritual experience and ascetic practices.
 
