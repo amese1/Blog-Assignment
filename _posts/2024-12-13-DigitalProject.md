@@ -1,6 +1,6 @@
 ---
 layout: post 
-title: Devoted and Divided: Women’s selfless devotion to religion
+title: Devoted and Divided Women’s Selfless Devotion to Religion
 ---
 
 ### Intro to my Blog!
